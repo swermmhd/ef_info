@@ -1,5 +1,5 @@
 # ef_info
  
 Test
-nigga
-what
+fortnite club
+hallo
